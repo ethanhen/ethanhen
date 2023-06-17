@@ -1,3 +1,3 @@
 # hahaha im bad at coding
 
-[discord](discordapp.com/users/327814868231258114)
+[discord](https://discordapp.com/users/327814868231258114)
