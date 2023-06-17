@@ -1,3 +1,3 @@
 # hahaha im bad at coding
 
-disc: swedrft#0001
+[discord](discordapp.com/users/327814868231258114)
